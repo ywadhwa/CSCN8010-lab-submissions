@@ -1,3 +1,0 @@
-Lab Submissions
-
--Yatin Wadhwa
